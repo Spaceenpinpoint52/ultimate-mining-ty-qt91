@@ -1,4 +1,4 @@
-#  
+#  best ultimate mining tycoon Script offers the most advanced ultimate mining tycoon Script, with anti-ban and auto-collect. Perfect for dominating any
 
 
 
